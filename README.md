@@ -1,0 +1,2 @@
+# Gup-Sup
+BIT SINDRI SOCIAL MEDIA
